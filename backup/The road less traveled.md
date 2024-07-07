@@ -1,1 +1,0 @@
-About 100 years ago, psychology borned form phsoliphy based on the experimental method.
